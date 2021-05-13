@@ -9,10 +9,10 @@ Email-Sharmarahul001992@gmail.com.<br>
 Looking for a section level situation to start my Job in an elevated level proficient condition. 
 
 # Passion in life-
-Hello Guys, Today I would like to tell you something about passion.
+ Today I would like to tell you something about passion.
 My name is Rahul Sharma and my childhood dream is to become a software engineer. I worked very hard to fulfill my dream. My Strength are I am self motivated
 hard working & a disciplined person.My short term goal is to get a job in a reputed company & my long term goal is to achieve a good position where i can build my carrer
-& elp the organization too.
+& help the organization too.
 That's all about me.
 
 # Technical skill-
